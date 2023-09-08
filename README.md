@@ -28,4 +28,4 @@ F
 ![image](https://github.com/Holid3n/DemoEkzamen/assets/97594334/bb646445-dd36-4353-b3ee-3745ccb65c17)
 
 
-![image](https://github.com/ditclay/DemoEkzamen/assets/59621706/2a58bd70-8fea-4e59-8d25-a21b982e1cd7)
+![image](https://github.com/Holid3n/DemoEkzamen/assets/97594334/a8ffe82a-0f48-40ab-bffc-d8edf5f20a9c)
