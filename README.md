@@ -18,12 +18,14 @@ https://docs.google.com/document/d/17dkgRFIxEAdOvFsUuCD5TGeWHCqcC7U-Ha5MJ0EfdtI/
 30 баллов - 5</br>
 
 # Описание ПО на флешке
-![image](https://github.com/ditclay/DemoEkzamen/assets/59621706/f2faba84-fe4d-4a8d-9a62-b7be70d4bc0f)
+![image](https://github.com/Holid3n/DemoEkzamen/assets/97594334/cb2c7962-deec-4220-8a39-f5de160206c6)
 
 # Visual Studio
-![image](https://github.com/ditclay/DemoEkzamen/assets/59621706/01cc6e4c-b6d0-42fc-892e-9ae2d2d8becf)f
+![image](https://github.com/Holid3n/DemoEkzamen/assets/97594334/624d19e9-6086-4a09-882b-32112f8caa84)
+F
 
 # SSMS и SQL
-![image](https://github.com/ditclay/DemoEkzamen/assets/59621706/c9d5cc9d-b3f6-4855-80de-0df80d7a1e77)
+![image](https://github.com/Holid3n/DemoEkzamen/assets/97594334/bb646445-dd36-4353-b3ee-3745ccb65c17)
+
 
 ![image](https://github.com/ditclay/DemoEkzamen/assets/59621706/2a58bd70-8fea-4e59-8d25-a21b982e1cd7)
