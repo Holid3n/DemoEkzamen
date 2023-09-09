@@ -1,7 +1,6 @@
-"git.enabled": false
 ![image](https://github.com/Holid3n/DemoEkzamen/assets/97594334/095291fd-5d0b-4589-bfe7-79bf32a57410)
 
-<Window x:Class="TurAgency.MainWindow"
+<W.indow x:Class="TurAgency.MainWindow"
         xmlns="http://schemas.microsoft.com/winfx/2006/xaml/presentation"
         xmlns:x="http://schemas.microsoft.com/winfx/2006/xaml"
         xmlns:d="http://schemas.microsoft.com/expression/blend/2008"
