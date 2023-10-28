@@ -3,3 +3,5 @@
 ![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия (2)](https://github.com/Holid3n/DemoEkzamen/assets/97594334/ff702e87-834f-4a21-aa35-4af76f3d9109)
 ![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия (2) — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/c18a78de-7f4f-43e3-93a4-ac80239eb69a)
 ![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/ca631584-65ea-45b4-bcdf-ddeb08c661ec)
+![Uploading 1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия (3).jpg…]()
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия (3) — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/ffa9716c-2844-419f-836a-f2ee0d16adac)
