@@ -1,0 +1,5 @@
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия — копия (2)](https://github.com/Holid3n/DemoEkzamen/assets/97594334/0eda4650-2d75-46df-99b9-606d3245e208)
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия — копия — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/ac27f75b-593d-4ef8-93c5-b41c8daf4cb9)
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия (2)](https://github.com/Holid3n/DemoEkzamen/assets/97594334/ff702e87-834f-4a21-aa35-4af76f3d9109)
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия (2) — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/c18a78de-7f4f-43e3-93a4-ac80239eb69a)
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия — копия — копия — копия — копия — копия — копия — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/ca631584-65ea-45b4-bcdf-ddeb08c661ec)
