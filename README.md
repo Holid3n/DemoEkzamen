@@ -1,3 +1,6 @@
+
+![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия (3) — копия — копия — копия — копия — копия — копия — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/10089e31-a5f7-41ac-9e84-e9089e5dcac5)
+
 # DemoEkzamen
 1. Диаграмма</br>
 Изучить описание предметной области: [Турагенство](https://github.com/Julia-Zhirnova/Demoekzamen/blob/main/0%20WorldSkills/1_Use%20Case/Описание%20ПО.docx); [Глазки-Save](https://github.com/Julia-Zhirnova/Demoekzamen/blob/main/2%20задание%20Глазки-Save/Общие%20ресурсы/Введение%20ПО_G.pdf); [Свияжские холмы](https://github.com/Julia-Zhirnova/Demoekzamen/blob/main/7%20задание%202022/09_1.2-2022_8/Вариант%208/Свияжские%20холмы/Общие%20ресурсы/Описание%20предметной%20области.pdf); [ООО "Руль"](https://github.com/Julia-Zhirnova/Demoekzamen/blob/main/9%20задание%202023/КОД%201.1%202023-2025%20ВАРИАНТ%203.rar)</br>
