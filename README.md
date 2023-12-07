@@ -1,5 +1,4 @@
 
-![1666222858_7-mykaleidoscope-ru-p-kartinki-mishka-freddi-vkontakte-9 — копия (3) — копия — копия — копия — копия — копия — копия — копия](https://github.com/Holid3n/DemoEkzamen/assets/97594334/10089e31-a5f7-41ac-9e84-e9089e5dcac5)
 
 # DemoEkzamen
 1. Диаграмма</br>
